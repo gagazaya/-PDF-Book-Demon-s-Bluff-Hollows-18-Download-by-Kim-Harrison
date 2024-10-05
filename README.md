@@ -1,1 +1,8 @@
-# -PDF-Book-Demon-s-Bluff-Hollows-18-Download-by-Kim-Harrison
+# [PDF] Book Demon's Bluff (Hollows, #18) Download by Kim Harrison
+
+<p><strong>2 second-ago &mdash; Here Options to Downloading or Read Book of Demon's Bluff (Hollows, #18) Download by: Kim Harrison the PDF online for free on Server Amazon, Reddit, Goodreads.</strong></p>
+<p style="text-align: center;"><strong>GET COPY FILE :</strong></p>
+<p style="text-align: center;"><strong><a href="https://us.ebookarea.xyz/?book=205804793-demon-s-bluff" target="_blank" rel="noopener">📢 : 🔗 Demon's Bluff (Hollows, #18)</a>&nbsp;</strong></p>
+<p style="text-align: center;">File format : ePub, PDF, Kindle, AudioBook</p>
+<p><strong>SYNOPSIS :</strong></p>
+<p>Rachel Morgan must go on a deadly journey?into the past?in the next thrilling Hollows novel in the #1 New York Times bestselling series.What?s a witch to do when the coven of moral and ethical standards demands she untwist a curse?but an essential spell component no longer exists? There?s only one choice: go back in time.Caught between self-exile and an Alcatraz cell, Rachel must find an Atlantean mirror to reverse the curse and prove to Cincinnati?s brand-new witch coven that, no, she does not practice illicit magic. Unfortunately, the only mirror of its kind in existence belonged to the insane demon Newt, forcing Rachel to go to the past to bargain with her for it.But the time-travel spell goes awry, dragging Elyse, the young leader of the coven, into the past with Rachel. They expect to land five years in the past but instead arrive two days before Rachel?s long-lost love, Kisten, dies. Heartbroken and torn, Rachel knows she can't change the past.Even with no allies, Rachel still</p>
